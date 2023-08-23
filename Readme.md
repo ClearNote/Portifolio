@@ -1,0 +1,1 @@
+Olá este é o meu portifolio, todos os arquivos subsequentes são para fins de exposição.
